@@ -1,4 +1,4 @@
-## Hi there 👋
+With God is everything possible.
 
 <!--
 **FJB-Essentials/FJB-Essentials** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
